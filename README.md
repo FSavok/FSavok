@@ -14,4 +14,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: Discord: savoky
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I wear glasses!
---> I would love to help with projects and to work at creating series/films, videogames and more! I have my own animated series project that i want to release. I upload my animations on Youtube channel and learning how to manage it and view the analytics. I need money to help me with animating projects so im looking for a job. I you have questions left please contact me on my Gmail address or Discord: savoky. I have not so great vision so i have to wear glasses on a daly basis, but it doesn't slow me down.
+--> I would love to help with projects and to work at creating series/films, videogames and more! I have my own animated series project that i want to release. I upload my animations on Youtube channel and learning how to manage it and view the analytics. I need money to help me with animating projects so im looking for a job. I you have questions left please contact me on my Gmail address: xxxf53659@gmail.com or Discord: savoky. I have not so great vision so i have to wear glasses on a daly basis, but it doesn't slow me down.
